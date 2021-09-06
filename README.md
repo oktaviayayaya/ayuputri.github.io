@@ -1,1 +1,0 @@
-# ayuputri.github.io
